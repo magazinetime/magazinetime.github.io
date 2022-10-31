@@ -1,0 +1,1 @@
+# magazinetime.github.io
